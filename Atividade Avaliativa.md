@@ -94,6 +94,7 @@ _O pai deu uma bola de presente ao filho. Lembrando o prazer que sentira ao ganh
 
 
 _O garoto agradeceu, desembrulhou a bola e disse “Legal!”. Ou o que os garotos dizem hoje em dia quando gostam do presente ou não querem magoar o velho. Depois começou a girar a bola, à procura de alguma coisa.
+
 ---
 ---
 — _Como e que liga? — perguntou._
